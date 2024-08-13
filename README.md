@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @anacarol05
 - 👀 I’m interested in food
 - 🌱 I’m currently learning nada
-- 💞️ I’m looking to collaborate on nada
+- 💞️ I’m looking to collaborate on tudo
 - 📫 How to reach me email
 - 😄 Pronouns: ela
 - ⚡ Fun fact: sou americana latina
